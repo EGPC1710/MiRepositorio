@@ -7,3 +7,5 @@ what are u looking???, its a readme, just that
 
 
 are u kidding? 
+
+stop doing this, go away
